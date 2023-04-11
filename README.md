@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Gunaa-S
-- 👀 I’m interested in Mobile Tech and Gaming field
+- 👀 I’m interested in Mobile Tech, Gaming and IoT.
 - 🌱 I’m currently learning B.E CSE(2024)
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me mail-gunaasarkar18@gmail.com contact-9585477101
